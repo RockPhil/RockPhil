@@ -25,7 +25,7 @@ Collaboration fuels innovation, and I'm always open to exciting opportunities. W
 
 🔗 Connect with me:
 
-GitHub: []
+GitHub: [https://github.com/RockPhil]
 LinkedIn: [www.linkedin.com/in/
 philip-peter-4975312b3
 ]
